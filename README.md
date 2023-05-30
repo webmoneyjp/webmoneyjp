@@ -1,0 +1,1 @@
+# webmoneyjp.github.io
